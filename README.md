@@ -1,0 +1,1 @@
+# Islem_Onceligi_Ornekleri
